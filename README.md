@@ -1,4 +1,4 @@
-- Hi, I’m @CalixOw
+- Hi, I’m @Calix
 - I’m interested in coding and gaming.
 - I’m currently learning whatever i can.
 - I’m looking to collaborate on nothing at the moment.
